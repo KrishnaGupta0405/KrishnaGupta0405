@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Machine Learning<br>👯 I’m looking to collaborate on Artificial intelligence<br>🌱 I’m currently learning AI/ML<br>💬 Ask me about the same i.e. AI/ML<br>⚡ Fun fact- NULL today :)
+🔭 I’m currently working on Machine Learning<br>👯 I’m looking to collaborate on Artificial intelligence<br>🌱 I’m currently learning AI/ML<br>💬 Ask me about the same i.e. AI/ML<br>⚡ Fun fact- I am feeling more strong day by day
 
 
 ## 🌐 Socials:
